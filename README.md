@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AndhavarapuKoushik
+- 👀 I’m interested in science and technology
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate with people to build my future
+- 📫 reach me koushikothers@gmail.com
